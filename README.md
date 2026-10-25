@@ -4,7 +4,7 @@
 
 https://github.com/coccer456-del/1151VR-HW3-414261515--/blob/main/README.md
 
-(我用手機拍的youtubec會自動轉成short)
+(我用手機拍的youtube會自動轉成short)
 
 https://www.youtube.com/shorts/7gDUuHbrD2s
 
